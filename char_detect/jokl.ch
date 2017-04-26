@@ -1,0 +1,1 @@
+ÀÁÂÃÄÅ¨ÆÇÈÉÊËÌÍÎÏÐÑÒÓÔÕÖ×ØÙÚÛÜÝÞ‗אבגדהו¸זחטיךכלםמןנסעףפץצקרשתûü‎‏ÿABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz~!@#$%^&*()_+{}:""<>?\|/=-1234567890
